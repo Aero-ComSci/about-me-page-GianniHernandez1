@@ -1,1 +1,3 @@
-v
+Independent
+Organized
+Committed
